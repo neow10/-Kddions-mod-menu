@@ -13,7 +13,7 @@ A: Use you're numpad you should see arrows on it!
 
 Q: I dont have a numpad!
 
-A: NO FIX I THINK
+A: Find a video on Youtube
 
 
 
